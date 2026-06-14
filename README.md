@@ -1,32 +1,16 @@
-# INTRODUCTION ! 
+ # INTRODUCTION ! 
  
-![image](https://github.com/user-attachments/assets/427921b3-73fd-49e2-a051-6b0a2e6872c3)
+![image](https://i.postimg.cc/RFzcDH9b/Untitled1327-20230807102112.png)
+════════════════════════════════════════════════════════
 
-!! >ᵥ_ᵥ<KAI !  ![image](https://github.com/user-attachments/assets/ed58978e-3a9f-445b-b37c-4b08fac2438a)
+ᛝ KAI  ![gif](https://file.garden/Zy7nsVKnFHAuCMhW/pixels/black%20pixel/bl40)
 
-; 𓎢　 MINOR ; AUTISTIC!  ![gif](https://64.media.tumblr.com/c976c1f0110dff524dead5bde74dd5df/09b0656ab042c182-ac/s75x75_c1/888d378a91f5776307c5c5633ed9c5c7e094b4e5.gifv)   ![image](https://github.com/user-attachments/assets/a58daf60-33a9-473a-9c07-4082b46d7f4a)
- 🦇 ⭔﹕ ![image](https://github.com/user-attachments/assets/65af1f47-8e4b-4652-98ef-49bea9cd2d48)
-| VIRGO ; ISFP! + FRENCH  ; ENGLISH , ROMANIAN
+✦　　minor & autistic + bpd ࿚ anxiety disorder  ![gif](https://64.media.tumblr.com/6d7b216b5a6335125e90808ebfd3aadf/2e220f9d268f7399-87/s75x75_c1/36efd6dc97938eb0553403e66b6774b73f1ef51b.gifv)
 
-🧛‍♂️ ^..^ VAMPIRE *!* Non-human. ![gif](https://files.catbox.moe/g1oq36.gif)
+ †₊◞　![image](https://64.media.tumblr.com/a88a3b0b98e8c15ff2ba67a2ead4cda1/7f018a0b5994707e-19/s75x75_c1/ca32217dedf28b5955b9a9dc6856207a6e70ffdc.png) . . ![image](https://64.media.tumblr.com/eee791369478d28a8dce646e034e2785/da3b405fc4e62964-6f/s75x75_c1/4d40b5f634641637b4724855a97ba765d3660c42.png)
+|   𓏵 　 † virgo . isfp　୧　 french & english nd romanian
+ 
 
-# INTERESTS ! ![gif](https://files.catbox.moe/5u1pyi.gif)
-[ ![gif](https://files.catbox.moe/2vjj5z.gif)  ◎﹒ K-pop [Itzy,Lesserafim etc..] ˘ᗜ˘﹒ POP : Chappell Roan,Melanie martinez,mitski,jazmin bean,billie eillish,beabadoobee,charli xcx,the neighbourhood,lana del rey,MSI,MCR,Ashnikko, TYLER THE CREATOR ![gif](https://files.catbox.moe/5u5v9r.gif)
-
-⪩⪨﹢ **MEDIA** ;  *CURRENT HYPERFIXATIONS ?!* Murder drones , Flamingo [ALBERT!],Mouthwashing,Dandy's world,ROBLOX,Genshin impact,Cookie run kindgom ; Pressure, Pokemon, BTD [TPOF!] , Arcane ᶻz﹒⪨   Spider-verse   Omori, Needy Streamer Overload , Helluva boss,Hazbin hotel,FNAF,Hello neighbor, yandere simulator ,Minecraft,SCP;stranger things,  Danganronpa,,MHA,Jujutsu kaisen,Demon slayer. ![gif](https://files.catbox.moe/z6cg9j.gif)
-
-(＞。☆)﹔⇆ **GENERAL** : **Animals,rocks,nature,** ○﹒░ physical touch,love,cuddles *!* ![gif](https://64.media.tumblr.com/81c741adc913a591c0c02ba77cf0d1fa/3e8d1fe1953a3988-20/s75x75_c1/87ce63459a2207a938d682626318e0882935d137.gif)
-
-
-# HOBBIES
-DRAWING ! LEARNING ENGLISH,,POLISH, Writing, Play videos games, Crochet, Scrapbooking, making original characters!! ![gif](https://files.catbox.moe/c2i6ii.gif)
-
-
-# BYF , DNFI
-
-![gif](https://files.catbox.moe/lq9k9g.gif) Easily Sensitive + Trouble with memory, Autistic, Can attention seeking , Be annoying | ✧﹒✶﹔ Scream at people, Unfunny jokes, Hate anxious people, MEOWBAHH fans, Trolls + Basic DNI
-
-
-ˊ•͈ ꇴ •͈ˋ) ; WHERE I AM IN PONY TOWN : Dandy's world,regretevator,pressure,mouthwashing,cookie run, arcane AREAS!
-
-[MY STRAWPAGE](https://fairykaii.straw.page)
+  ![gif](https://64.media.tumblr.com/79cfc33ae91a307b3671a8e91a5864cd/1a96a4a8b5b8d3d6-20/s75x75_c1/00750eddda40f01cc85e0e6e2266f2ca92161fb2.gifv) **﹑⟡  all hobbies . . etc is in wip .** 
+౨౿ .  [RENTRY](https://rentry.co/fairykai) ⊹ 　﹒  discord : identitycrisis
+  ⠀𝜗𓏲⠀pony town : mostly in tadc . genshin nd cookie run area to see me 
