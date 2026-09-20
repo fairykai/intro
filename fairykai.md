@@ -1,9 +1,9 @@
  # INTRODUCTION ! 
  
-![image](https://i.postimg.cc/RFzcDH9b/Untitled1327-20230807102112.png)
+![image](https://i.pinimg.com/1200x/24/ff/1e/24ff1ee8f29f30364854cf27a0b80ce4.jpg)
 ════════════════════════════════════════════════════════
 
-ᛝ KAI  ![gif](https://file.garden/Zy7nsVKnFHAuCMhW/pixels/black%20pixel/bl40)
+ᛝ KAI  ![gif](https://i.ibb.co/dtsqC8V/IMG-7676.gif)
 
 ✦　　minor & autistic + bpd ࿚ anxiety disorder  ![gif](https://64.media.tumblr.com/6d7b216b5a6335125e90808ebfd3aadf/2e220f9d268f7399-87/s75x75_c1/36efd6dc97938eb0553403e66b6774b73f1ef51b.gifv)
 
@@ -12,5 +12,5 @@
  
 
   ![gif](https://64.media.tumblr.com/79cfc33ae91a307b3671a8e91a5864cd/1a96a4a8b5b8d3d6-20/s75x75_c1/00750eddda40f01cc85e0e6e2266f2ca92161fb2.gifv) **﹑⟡  all hobbies . . etc is in wip .** 
-౨౿ .  [RENTRY](https://rentry.co/fairykai) ⊹ 　﹒  discord : identitycrisis
-  ⠀𝜗𓏲⠀pony town : mostly in tadc . genshin nd cookie run area to see me 
+౨౿ .  [RENTRY](https://rentry.co/fairykai) ⊹ [ATABOOK](https://fairykai.atabook.org/)　﹒  discord : identitycrisis
+  ⠀𝜗𓏲⠀pony town : mostly in tadc . marvel . deltarune area to see me
